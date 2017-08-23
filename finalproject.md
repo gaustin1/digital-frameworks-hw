@@ -16,12 +16,17 @@ Trump International Hotel has created a lot of controversy, much of it due to is
 
 Of his golf properties, Trump National Bedminster in New Jersey, where he most recently was in August, is his top pick, spending a total of 24 days there. This has been labeled his “summer White House,” or his top vacation spot. United Way of Monmouth and Ocean Counties in New Jersey also recently made news for pulling out of the venue for an event over the events in Charlottesville.
 
-Next on Trump’s top visited places are his golf course in the D.C. area, Trump National Potomac, and his two in Florida, Trump National Jupiter and Trump International West Palm.
+Next on Trump’s top visited places are his golf course in the D.C. area, Trump National Golf Club, and his two in Florida, Trump National Jupiter and Trump International West Palm. 
 
-Trump recently visited Trump Tower for three days, making news as it was the first time since his inauguration. It has significant importance for Trump. This was where he first made his presidential candidacy announcement in June 2015.  
+Trump National Golf Club came under fire recently for having a plaque near the 15th hole dedicated to a fake Civil War battle, and at a time when the president has been criticized for his reaction to Charlottesville.  
 
-So far, Trump has spent the most vacation days in August, with July and February the next most-visited vacation months. Trump has spent the most consecutive days away from the White House in August, too, for more than two weeks. And with Congress on recess in August, and White House maintenance under way, more time will probably be spent away from 1600 Penn and instead at his Trump properties. 
+Trump National Jupiter and Trump International West Palm both recently made news, too, for losing events. Those that have pulled out say it is due to a natural cycling of locations, direct opposition to Trump and his comments post-Charlottesville or just a bid to keep all patrons happy.
+
+In August, Trump recently visited Trump Tower for three days, making news as it was the first time since his inauguration. It has significant importance for Trump. This was where he first made his presidential candidacy announcement in June 2015. 
+
+So far, Trump has spent the most vacation days in August, with July and February the next most-visited vacation months. Trump has spent the most consecutive days away from the White House in August, too, for more than two weeks. And with Congress on recess in August, and White House maintenance under way, more time will probably be spent away from 1600 Penn and instead at his Trump properties.
 
 And there are benefits of Trump using his properties, say experts. Food, lodging and other expenses are paid personally by the president when they stay at their vacation properties. And he’s in good company. President Ronald Reagan stayed at his California ranch for almost a full year of his eight years in office.
 
 Trump has far more properties to visit, both domestic and international, hotels and golf clubs. For instance, Los Angeles, Scotland and Dubai all have golf clubs. Maybe in the foreseeable future he will visit them on local and global trips, but as he is wont to do, his visits will likely stir more controversy. 
+
